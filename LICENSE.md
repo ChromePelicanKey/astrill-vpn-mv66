@@ -1,4 +1,4 @@
-
+Astrill VPN automatic Plugin: 24/7-support & DNS-leak-protection offers the most advanced Astrill VPN plugin, with 24/7-support and DNS-leak-protection. Ideal for users who value
 
 
 
